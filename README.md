@@ -7,7 +7,7 @@
 
 - 💬 Ask me about ***
 
-- 📫 How to reach me **mlrx.potindji@protonmail.com**
+- 📫 How to reach me **malraux.potindji@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
