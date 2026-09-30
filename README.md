@@ -11,7 +11,7 @@
 
 ### 🔬 Current Activity — PhD in Epidemiology
 
-I'm a PhD candidate (started April 2026) at the **Helmholtz Centre for Infection Research**, working on:
+I'm a PhD candidate at the **Helmholtz Centre for Infection Research**, working on:
 
 > **"Multi-Scale Determinants of Childhood Vaccine Response: Integrating Serological and Environmental Data"**
 
